@@ -1,5 +1,5 @@
 # Wlecome to my page!
 
-## Sudent/Cybersecurity Analyst as Auburn University
+## Sudent at Auburn University
 
 
