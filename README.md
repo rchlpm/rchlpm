@@ -1,5 +1,5 @@
 # Wlecome to my page!
 
-## Sudent at Auburn University
+## Student at Auburn University
 
 
